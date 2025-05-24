@@ -6,3 +6,4 @@
 ![quicklook](https://github.com/user-attachments/assets/3f8e6351-c668-4aab-b2c9-d1c6d5bfdc96)
 [2750 2.zip](https://github.com/user-attachments/files/20422166/2750.2.zip)
 [README(1).md](https://github.com/user-attachments/files/20422208/README.1.md)
+The link of vedio is here: https://youtu.be/0NWOiEbD-Dw
